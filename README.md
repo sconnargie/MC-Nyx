@@ -1,0 +1,1 @@
+#Minecraft NyX Serverm enjoy!
